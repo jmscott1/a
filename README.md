@@ -1,1 +1,1 @@
-# Tyler
+# Tyler, Computer  science
